@@ -1,0 +1,1 @@
+# Previsão de preços do BTC para 2024
